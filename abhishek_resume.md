@@ -1,7 +1,7 @@
 # Abhishek Sharma
 
 **Hybrid Cloud & Network Solutions Professional**  
-📍 Brno, Czech Republic • 📞 +420 778 758 297 • 📧 abhixabhi@hotmail.com  
+📍 Brno, Czech Republic • 📞 +420 778 758 *** • 📧 abhixabhi@hotmail.com  
 🔗 [LinkedIn](https://www.linkedin.com/in/absharma9/) • 🌐 [Portfolio](https://bold.pro/my/abhisshb/157)  
 
 ---
